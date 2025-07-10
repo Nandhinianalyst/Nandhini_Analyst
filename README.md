@@ -1,4 +1,4 @@
-## ✌️ Hi There# 👋 Hi, I'm Nandhini Naachiyaa
+## ✌️ Hi There # 👋 Hi, I'm Nandhini Naachiyaa
 
 🎯 Aspiring **Data Analyst** | 📊 Currently upskilling at **Entri Elevate**  
 📚 Graduate in **B.Com** from **Bishop Heber College**
